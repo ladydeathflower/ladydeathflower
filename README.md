@@ -44,8 +44,3 @@ the day i find my knife to my suitcase is the day im free from the pain of being
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀![Alt Text](https://64.media.tumblr.com/8c4bfff816772cbfbc1d7a3c91fc98e5/d7a4ee70b0040a67-3b/s1280x1920/002faccc6457ed114b8cf1958ec6049e03026324.gifv)
-<!--
-**ladydeathflower/ladydeathflower** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-\ is like <br>
-![Alt Text](images/screenshot.png) <- add images here
--->
