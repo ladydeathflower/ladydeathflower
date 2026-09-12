@@ -30,6 +30,12 @@ i like to roleplay ONLY on pony town i do not feel comfy roleplaying anywhere el
 as said im a minor. keep that in mind people jesus
 ♯ i have 2 cats and 2 dogs!!!\
 𖹭 im not always active on pony town, i go on long breaks. please keep that in mind, if you forget who i am remeber i go by ladydeathflower/comet chan/melrose most of the time. if not thats someone else wth
+cupiorose/genderfae/almondsexual (no i dont like almonds im under the omni umberalla and perfer masc. also the site i used to make my pfp didn't have cupio rose, so thats why i have a dif flag in my pfp.) 
+
+![Alt Text](https://64.media.tumblr.com/695e5df9b078ed408aaaf3102172a9fc/2016d997ceb037a5-b5/s100x200/aa3e0eac34f3522fe2202b85daa3e1b917c6e1ab.pnj)![Alt Text](https://64.media.tumblr.com/6d4e92dba2cbdfef91a35bab6fbf5581/86aaca21b350174c-3c/s100x200/6749166422329daf5afb69d7e0053384e2155385.pnj)![Alt Text](https://64.media.tumblr.com/b77a6461e73060ea1a75271805ffcff8/e6b6a86299ee0253-70/s250x400/b428bbc1c4e7a277e1498654962e332792b30b21.pnj)
+
+
+
 
 why is there so little suitcase graphics but a whole dream island of knife graphics!!! rah!!!
 
