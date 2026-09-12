@@ -27,7 +27,7 @@
 ok finally onto a maybe real about me
 
 i like to roleplay ONLY on pony town i do not feel comfy roleplaying anywhere else mostly due to bad expereinces everywhere else :(\
-as said im a minor. keep that in mind people jesus
+as said im a minor. keep that in mind people jesus\
 ♯ i have 2 cats and 2 dogs!!!\
 𖹭 im not always active on pony town, i go on long breaks. please keep that in mind, if you forget who i am remeber i go by ladydeathflower/comet chan/melrose most of the time. if not thats someone else wth\
 cupiorose/genderfae/almondsexual (no i dont like almonds im under the omni umberalla and perfer masc. also the site i used to make my pfp didn't have cupio rose, so thats why i have a dif flag in my pfp.) 
